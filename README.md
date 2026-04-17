@@ -1,4 +1,4 @@
-# dianavdavidson/wh_l_v3_t_mucs_30_70_mucs_52508__val_finetune_trial - Private, Uncensored AI for Real Creators and Devs
+# dianavdavidson/wh_l_v3_t_mucs_30_70_mucs_52508__val_finetune_trial  - Private, Uncensored AI for Real Creators and Devs
 
 > Tired of AI that babysits you, logs your prompts, or hits you with "I can't do that"?
 > Meet the next-gen chatbot built for freedom, speed, and digital sovereignty.
